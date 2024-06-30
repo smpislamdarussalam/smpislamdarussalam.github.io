@@ -1,1 +1,1 @@
-# SMP-ISLAM-DARUSSALAM.github.io
+# smpislamdarussalam.github.io
